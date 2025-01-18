@@ -1,3 +1,3 @@
-# Justtabad.github.io
-hello 
-my name is Abu Ebad Ahmed 
+
+HELLO 👋🏻 🤗 
+My Name Is Abu Ebad Ahmed
